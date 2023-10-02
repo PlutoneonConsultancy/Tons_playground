@@ -1,0 +1,1 @@
+A live band experience inspired by the movie "School of Rock" and led by Andrew J. Shepherd - top guitarist, music producer, chef, and IT expert.
